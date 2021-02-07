@@ -1,1 +1,1 @@
-# Gurp's blog
+# Why deregulation is not neoliberalism 
